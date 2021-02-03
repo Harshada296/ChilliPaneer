@@ -1,0 +1,1 @@
+Paneer (Indian cottage cheese) is tossed in a flavorful spicy sauce made with soy sauce, chili sauce, vinegar!
